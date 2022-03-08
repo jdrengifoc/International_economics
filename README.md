@@ -63,7 +63,7 @@
 2. Reading Di Maio (2009)
 3. Reading [Siete años del TLC EE.UU. - Colombia: balance y perspectivas](https://www.larepublica.co/analisis/sergio-clavijo-500041/siete-anos-del-tlc-eeuu---colombia-balance-y-perspectivas-2937038)
 4. Video [Haley Edwards: What global trade deals are really about (hint: it's not trade](https://www.youtube.com/watch?v=-v3uqD1hWGE)
-5. Video[The EU - America Trade Deal: Why The TTIP Failed - TLDR News](https://www.youtube.com/watch?v=2eXoU6vTEKQ)
+5. Video [The EU - America Trade Deal: Why The TTIP Failed - TLDR News](https://www.youtube.com/watch?v=2eXoU6vTEKQ)
 6. Reading [Overview of the U.S.-Colombia Trade Agreement](https://ustr.gov/uscolombiatpa/facts)
 7. Reading Slow growth in Mexico casts doubt on merits of Nafta
 
